@@ -1,4 +1,5 @@
 #INTERNSHIPS FOR WOMEN IN TECH!
+
 To address so many gender-biased problems women face, tech firms have started giving some additional opportunities for women to work in their companies as interns or full-time employees. But many times, we are not aware of these opportunities and miss them. So here is the list of the best internship and job opportunities, particularly for women in the tech industry.
 
 #1. STEP (Student Training in Engineering Program) by GOOGLE:
